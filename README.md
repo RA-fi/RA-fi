@@ -1,6 +1,6 @@
 ### Here is what I'm working on....!
 
-![](https://miraculoussoft.com/wp-content/uploads/2019/09/wp-programmer.gif)
+![](https://gph.is/st/MxwVnGE)
 
 Here are some ideas to get you started:
 
