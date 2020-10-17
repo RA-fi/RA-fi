@@ -1,6 +1,6 @@
 ### Here is what I'm working on....!
 
-![](https://gph.is/st/MxwVnGE)
+![](https://media.giphy.com/media/fwbzI2kV3Qrlpkh59e/giphy.gif)
 
 Here are some ideas to get you started:
 
