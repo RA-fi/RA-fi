@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... AI
 - 🤔 I’m looking for help with ...AWS
 - 💬 Ask me about ... Anything
-- 📫 How to reach me: ... Http://www.rafiuzzaman.info
-- 😄 Pronouns: ... 
-- ⚡ Fun fact: ...
+- 📫 How to reach me: ... [Portfolio](http://www.rafiuzzaman.info)
+- 😄 Pronouns: ... He/Him
+- ⚡ Fun fact: ... I'm half finnish
 -->
